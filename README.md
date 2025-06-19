@@ -336,5 +336,3 @@ If you have a business cooperation project or want to initiate a paid consultati
 
 - Email : kingslay@icloud.com
 
-![1](./Documents/Sponsors.jpg)
-
